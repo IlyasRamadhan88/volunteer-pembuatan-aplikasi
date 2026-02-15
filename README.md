@@ -7,3 +7,4 @@ Silahkan gunakan format berikut:
 
 Berikut adalah daftar volunter yang diterima:  
 * Oon Arfiandi, [oo.or.id](https://oo.or.id).
+* Morphine1c, [Linkedin](https://www.linkedin.com/in/Morphine1c/).
